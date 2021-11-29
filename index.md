@@ -1,7 +1,14 @@
 ## link for someone
 
-### link 1
-<https://www.walmart.com/ip/HP14-X360-Touch-Chromebook-Intel-Celeron-N4000-4GB-RAM-64-GB-eMMC-Teal-Chrome-OS-14a-ca0130wm/518977383?athbdg=L1800>
+### hp stream cb174wm blk
 
-### link 2
-<https://www.costco.com/dyson-v10-animal+-cordless-stick-vacuum.product.100753125.html>
+<https://ftc.cash/ENNxx>
+
+### hp stream cb172wm pink
+<https://ftc.cash/jMz8Q>
+
+###hp ef1071wm
+<https://ftc.cash/9RBOT>
+
+###hp ef1001wm
+<https://ftc.cash/9RBOT>
