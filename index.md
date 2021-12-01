@@ -14,7 +14,7 @@
 <https://ftc.cash/9RBOT>
 
 c5d3
-https://ftc.cash/jO3p3
+<https://ftc.cash/jO3p3>
 
 samsung tablet
-https://ftc.cash/bpt8b
+<https://ftc.cash/bpt8b>
