@@ -15,3 +15,6 @@
 
 c5d3
 https://ftc.cash/jO3p3
+
+samsung tablet
+https://ftc.cash/bpt8b
