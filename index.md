@@ -18,3 +18,6 @@ c5d3
 
 samsung tablet
 <https://ftc.cash/bpt8b>
+
+swith with case and membership
+<https://ftc.cash/OKf8H>
