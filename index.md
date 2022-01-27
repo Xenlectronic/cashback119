@@ -41,7 +41,7 @@ wmt 81X800EMUS:
 
 <https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-Touchscreen-Display-Intel-Core-i3-1115G4-4GB-256GB-NVMe-TLC-SSD-UHD-Graphics-Sand-Windows-11-S-Mode-82H801GVUS/176150334?athbdg=L1400/?irgwc=1&sourceid=imp_1b530Hy4KxyIUwGw6d2GJwJnUkGysf2Ry1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=1b530Hy4KxyIUwGw6d2GJwJnUkGysf2Ry1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
 
-https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-Touchscreen-Display-Intel-Core-i3-1115G4-4GB-256GB-NVMe-TLC-SSD-UHD-Graphics-Sand-Windows-11-S-Mode-82H801GVUS/176150334?athbdg=L1400?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
+<https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-Touchscreen-Display-Intel-Core-i3-1115G4-4GB-256GB-NVMe-TLC-SSD-UHD-Graphics-Sand-Windows-11-S-Mode-82H801GVUS/176150334?athbdg=L1400?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
 
 <https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-Touchscreen-Display-Intel-Core-i3-1115G4-4GB-256GB-NVMe-TLC-SSD-UHD-Graphics-Sand-Windows-11-S-Mode-82H801GVUS/176150334?athbdg=L1400/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysdQ5y1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysdQ5y1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
 
