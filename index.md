@@ -3,15 +3,8 @@ bb swagbucks diao link :
 </?ref=5747701&acampID=0&loc=1284939916&afsrc=1>
 YL link:
 </?ref=5747701&acampID=0&loc=1284940212&afsrc=1>
-bb snowflag book
-<https://ftc.cash/zZKO2>
-<https://www.bestbuy.com/site/hp-14-laptop-intel-celeron-4gb-memory-64gb-emmc-snowflake-white/6478313.p?skuId=6478313/?ref=5747701&acampID=0&loc=1284939916&afsrc=1>
-<https://www.bestbuy.com/site/hp-14-laptop-intel-celeron-4gb-memory-64gb-emmc-snowflake-white/6478313.p?skuId=6478313/?ref=5747701&acampID=0&loc=1284940212&afsrc=1>
+ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 
-bb 350 book
-<https://ftc.cash/W0ZdK>
-<https://www.bestbuy.com/site/lenovo-ideapad-3-15-6-touch-screen-laptop-intel-core-i3-8gb-memory-256gb-ssd-almond/6461981.p?skuId=6461981/?ref=5747701&acampID=0&loc=1284939916&afsrc=1>
-<https://www.bestbuy.com/site/lenovo-ideapad-3-15-6-touch-screen-laptop-intel-core-i3-8gb-memory-256gb-ssd-almond/6461981.p?skuId=6461981/?ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 
 ### hp stream cb174wm blk
 
@@ -34,3 +27,22 @@ samsung tablet
 
 swith with case and membership
 <https://ftc.cash/OKf8H>
+
+UA:/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysYWhy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysYWhy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
+DL:/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysYSZy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysYSZy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
+AA:/?irgwc=1&sourceid=imp_1b530Hy4KxyIUwGw6d2GJwJnUkGysf2Ry1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=1b530Hy4KxyIUwGw6d2GJwJnUkGysf2Ry1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
+SW:/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
+AS:/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysdQ5y1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysdQ5y1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
+
+wmt 81X800EMUS:
+<https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-PC-Laptop-Intel-Core-i3-1115G4-4GB-128GB-SSD-Windows-11-in-S-Mode-Abyss-Blue-81X800EMUS/325732597?athbdg=L1700/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysYWhy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysYWhy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
+
+<https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-PC-Laptop-Intel-Core-i3-1115G4-4GB-128GB-SSD-Windows-11-in-S-Mode-Abyss-Blue-81X800EMUS/325732597?athbdg=L1700/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysYSZy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysYSZy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
+
+<https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-PC-Laptop-Intel-Core-i3-1115G4-4GB-128GB-SSD-Windows-11-in-S-Mode-Abyss-Blue-81X800EMUS/325732597?athbdg=L1700/?irgwc=1&sourceid=imp_1b530Hy4KxyIUwGw6d2GJwJnUkGysf2Ry1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=1b530Hy4KxyIUwGw6d2GJwJnUkGysf2Ry1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
+
+<https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-PC-Laptop-Intel-Core-i3-1115G4-4GB-128GB-SSD-Windows-11-in-S-Mode-Abyss-Blue-81X800EMUS/325732597?athbdg=L1700/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
+
+<https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-PC-Laptop-Intel-Core-i3-1115G4-4GB-128GB-SSD-Windows-11-in-S-Mode-Abyss-Blue-81X800EMUS/325732597?athbdg=L1700/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysdQ5y1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysdQ5y1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
+
+<https://ftc.cash/CKIGu>
