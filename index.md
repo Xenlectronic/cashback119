@@ -22,11 +22,8 @@ ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 c5d3
 <https://ftc.cash/jO3p3>
 
-samsung tablet
-<https://ftc.cash/bpt8b>
-
-swith with case and membership
-<https://ftc.cash/OKf8H>
+17-by4022wm
+<https://ftc.cash/VNt2D>
 
 UA:/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysYWhy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysYWhy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
 DL:/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysYSZy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysYSZy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
