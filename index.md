@@ -16,8 +16,8 @@ ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 sumsung 99
 <https://ftc.cash/KT4SV>
 
-c5d3
-<https://ftc.cash/jO3p3>
+dk1035wm
+<https://ftc.cash/6UihD>
 
 17-by4022wm
 <https://ftc.cash/VNt2D>
