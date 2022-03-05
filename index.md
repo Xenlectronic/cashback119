@@ -13,11 +13,8 @@ ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 ### hp stream cb172wm pink
 <https://ftc.cash/jMz8Q>
 
-###hp ef1071wm
-<https://ftc.cash/9RBOT>
-
-###hp ef1001wm
-<https://ftc.cash/9RBOT>
+sumsung 99
+<https://ftc.cash/KT4SV>
 
 c5d3
 <https://ftc.cash/jO3p3>
