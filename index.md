@@ -5,16 +5,14 @@ YL link:
 </?ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 
+prepay wmt 41 tmo
+<https://ftc.cash/yyvOH>
 
-### hp stream cb174wm blk
+prepay wmt 69 tmo
+<https://ftc.cash/UzJdp>
 
-<https://ftc.cash/ENNxx>
-
-### hp stream cb172wm pink
-<https://ftc.cash/jMz8Q>
-
-sumsung 99
-<https://ftc.cash/KT4SV>
+prepay wmt 59
+<https://ftc.cash/fAXC6>
 
 dk1035wm
 <https://ftc.cash/6UihD>
