@@ -5,14 +5,8 @@ YL link:
 </?ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 
-prepay wmt 41 tmo
-<https://ftc.cash/yyvOH>
-
-prepay wmt 69 tmo
-<https://ftc.cash/UzJdp>
-
-prepay wmt 59
-<https://ftc.cash/fAXC6>
+ef2126wm
+<https://ftc.cash/eFujM>
 
 dk1035wm
 <https://ftc.cash/6UihD>
