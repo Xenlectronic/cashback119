@@ -5,14 +5,8 @@ YL link:
 </?ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 
-ef2126wm
-<https://ftc.cash/eFujM>
-
-dk1035wm
-<https://ftc.cash/6UihD>
-
-17-by4022wm
-<https://ftc.cash/VNt2D>
+CB317-1H-C994-169
+<https://ftc.cash/cwXE5>
 
 liang 98 chrombook
 <https://ftc.cash/N9ANh>
