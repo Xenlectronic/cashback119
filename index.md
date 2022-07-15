@@ -5,6 +5,9 @@ YL link:
 </?ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 ref=5747701&acampID=0&loc=1284940212&afsrc=1>
 
+82C1002AUS 89
+<https://ftc.cash/o2cGu>
+
 CB317-1H-C994-169
 <https://ftc.cash/cwXE5>
 
