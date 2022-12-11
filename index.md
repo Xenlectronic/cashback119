@@ -18,7 +18,7 @@ liang 98 chrombook
 <https://ftc.cash/N9ANh>    ROKU <https://ftc.cash/OSdH2>
 
  15-dy2791wm <https://ftc.cash/eBmyJ>   179 14a-ca0790wm <https://ftc.cash/zCAXq>  15-dy2795wm 350 <https://ftc.cash/VDOm8>
- 15-dw1783wm <https://ftc.cash/e2RXo>  15-ef2729wm <https://ftc.cash/B35n6>
+ 15-dw1783wm <https://ftc.cash/e2RXo>  15-ef2729wm <https://ftc.cash/B35n6>  oculus qeust <https://ftc.cash/aeOeU>
  
  bb dyson <https://ftc.cash/Tt5HE>  82v6s00000 <https://ftc.cash/Q782z>  sku-6498805 <https://ftc.cash/oHgGL>
  
