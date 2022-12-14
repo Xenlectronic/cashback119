@@ -1,45 +1,24 @@
 ## link for someone
 bb swagbucks diao link :
-</?ref=5747701&acampID=0&loc=1284939916&afsrc=1>
+/?ref=5747701&acampID=0&loc=1498558298&afsrc=1
 YL link:
-</?ref=5747701&acampID=0&loc=1284940212&afsrc=1>
-ref=5747701&acampID=0&loc=1284940212&afsrc=1>
+/?ref=5747701&acampID=0&loc=1498557091&afsrc=1
 
-82C1002AUS 99
-<https://ftc.cash/o2cGu>
+
 82C1002AUS 89
 <https://ftc.cash/o2cGu>
 0083wm
 <https://ftc.cash/Y5UmD>
-noko dyson
-<https://ftc.cash/oHlNz>
+
 
 liang 98 chrombook
 <https://ftc.cash/N9ANh>    ROKU <https://ftc.cash/OSdH2>
 
- 15-dy2791wm <https://ftc.cash/eBmyJ>   179 14a-ca0790wm <https://ftc.cash/zCAXq>  15-dy2795wm 350 <https://ftc.cash/VDOm8>
  15-dw1783wm <https://ftc.cash/e2RXo>  15-ef2729wm <https://ftc.cash/B35n6>  oculus qeust <https://ftc.cash/aeOeU>
  
  bb dyson <https://ftc.cash/Tt5HE>  82v6s00000 <https://ftc.cash/Q782z>  sku-6498805 <https://ftc.cash/oHgGL>
  
 82KN002GUS <https://ftc.cash/YY7P4>  16 roku <https://ftc.cash/kZleM>
 
-bb QQJF CB <https://ftc.cash/oHgGL> NK 82KM0003US <https://ftc.cash/nMtQi>  
-UA:/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysYWhy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysYWhy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
-DL:/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysYSZy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysYSZy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
-AA:/?irgwc=1&sourceid=imp_1b530Hy4KxyIUwGw6d2GJwJnUkGysf2Ry1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=1b530Hy4KxyIUwGw6d2GJwJnUkGysf2Ry1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
-SW:/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
-AS:/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysdQ5y1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysdQ5y1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383
+bb QQJF CB <https://ftc.cash/oHgGL> NK 82KM0003US <https://ftc.cash/nMtQi>  82R1006VUS <https://ftc.cash/viLxV>  <https://www.bestbuy.com/site/marvels-spider-man-miles-morales-playstation-5-playstation-5/6460083.p?skuId=6460083/?ref=5747701&acampID=0&loc=1498557091&afsrc=1>  <https://www.bestbuy.com/site/lenovo-ideapad-1-15-6-hd-laptop-athlon-silver-3050u-4gb-memory-128gb-emmc-cloud-grey/6511943.p?skuId=6511943/?ref=5747701&acampID=0&loc=1498557091&afsrc=1>
 
-wmt 81X800EMUS:
-<https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-Touchscreen-Display-Intel-Core-i3-1115G4-4GB-256GB-NVMe-TLC-SSD-UHD-Graphics-Sand-Windows-11-S-Mode-82H801GVUS/176150334?athbdg=L1400?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysYWhy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysYWhy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
-
-<https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-Touchscreen-Display-Intel-Core-i3-1115G4-4GB-256GB-NVMe-TLC-SSD-UHD-Graphics-Sand-Windows-11-S-Mode-82H801GVUS/176150334?athbdg=L1400/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysYSZy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysYSZy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
-
-<https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-Touchscreen-Display-Intel-Core-i3-1115G4-4GB-256GB-NVMe-TLC-SSD-UHD-Graphics-Sand-Windows-11-S-Mode-82H801GVUS/176150334?athbdg=L1400/?irgwc=1&sourceid=imp_1b530Hy4KxyIUwGw6d2GJwJnUkGysf2Ry1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=1b530Hy4KxyIUwGw6d2GJwJnUkGysf2Ry1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
-
-<https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-Touchscreen-Display-Intel-Core-i3-1115G4-4GB-256GB-NVMe-TLC-SSD-UHD-Graphics-Sand-Windows-11-S-Mode-82H801GVUS/176150334?athbdg=L1400?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysdwRy1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
-
-<https://www.walmart.com/ip/Lenovo-Ideapad-3i-15-6-FHD-Touchscreen-Display-Intel-Core-i3-1115G4-4GB-256GB-NVMe-TLC-SSD-UHD-Graphics-Sand-Windows-11-S-Mode-82H801GVUS/176150334?athbdg=L1400/?irgwc=1&sourceid=imp_xG9UPxUbNxyORJ2wUx0Mo34GUkGysdQ5y1kbRc0&veh=aff&wmlspartner=imp_34844&clickid=xG9UPxUbNxyORJ2wUx0Mo34GUkGysdQ5y1kbRc0&sharedid=&affiliates_ad_id=565706&campaign_id=9383>
-
-<https://ftc.cash/YLW5c>
