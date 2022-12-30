@@ -10,6 +10,7 @@ YL link:
 0083wm
 <https://ftc.cash/Y5UmD>
 
+wmt cf2112-199 <https://ftc.cash/kDFlH>  cf2111 <https://ftc.cash/FETKo>
 
 liang 98 chrombook
 <https://ftc.cash/N9ANh>    ROKU <https://ftc.cash/OSdH2>
