@@ -11,6 +11,7 @@ YL link:
 <https://ftc.cash/Y5UmD>
 
 wmt cf2112-199 <https://ftc.cash/kDFlH>  cf2111 <https://ftc.cash/FETKo>
+14-dq2078wm <https://ftc.cash/uYyV3>
 
 liang 98 chrombook
 <https://ftc.cash/N9ANh>    ROKU <https://ftc.cash/OSdH2>
