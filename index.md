@@ -4,6 +4,7 @@ bb swagbucks diao link :
 YL link:
 /?ref=5747701&acampID=0&loc=1498557091&afsrc=1
 
+82R1006VUS <https://ftc.cash/viLxV>
 81X800KLUS <https://ftc.cash/rVce6>
 82V6001DUS <https://ftc.cash/CMyYk>
 82C1002AUS 89
