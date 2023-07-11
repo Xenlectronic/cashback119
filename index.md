@@ -22,7 +22,7 @@ liang 98 chrombook
 <https://ftc.cash/N9ANh>    ROKU <https://ftc.cash/OSdH2>
 
  15-dw1783wm <https://ftc.cash/e2RXo>  15-ef2729wm <https://ftc.cash/B35n6>  oculus qeust<https://ftc.cash/3rz4Z>
- cf2112wm <https://ftc.cash/kDFlH>
+ cf2112wm <https://ftc.cash/kDFlH> A315-58-34DA<https://ftc.cash/qEp3k>
 
  
 82KN002GUS <https://ftc.cash/YY7P4>  16 roku <https://ftc.cash/kZleM>
