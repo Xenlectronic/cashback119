@@ -11,7 +11,7 @@ YL link:
 82C1002AUS 89
 <https://ftc.cash/o2cGu>
 0083wm
-<https://ftc.cash/Y5UmD>
+<https://ftc.cash/f1O7j>
 dysonV7<https://ftc.cash/wMzdY>
 wmt dyson V8 <https://ftc.cash/tG5ZJ>
 14-dq2078wm <https://ftc.cash/uYyV3>
