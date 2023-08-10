@@ -10,8 +10,9 @@ YL link:
 82V6001DUS <https://ftc.cash/CMyYk>
 82C1002AUS 89
 <https://ftc.cash/o2cGu>
-0083wm
-<https://ftc.cash/f1O7j>
+0083wm <https://ftc.cash/f1O7j>
+C424MA-WH44F<https://ftc.cash/3tpmP>
+L510MA-WS21<https://ftc.cash/6w5AV>
 dysonV7<https://ftc.cash/wMzdY>
 wmt dyson V8 <https://ftc.cash/tG5ZJ>
 14-dq2078wm <https://ftc.cash/uYyV3>
