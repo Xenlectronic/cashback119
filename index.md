@@ -3,6 +3,7 @@ bb swagbucks diao link :
 /?ref=5747701&acampID=0&loc=1498558298&afsrc=1
 YL link:
 /?ref=5747701&acampID=0&loc=1498557091&afsrc=1
+A315-58-33XS <https://ftc.cash/440Aq>
 81X700FVUS<https://ftc.cash/i3kP6>
 81X700FGUS <https://ftc.cash/PEFBV>
 82R1006VUS <https://ftc.cash/viLxV>
