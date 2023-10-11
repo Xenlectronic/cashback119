@@ -25,8 +25,8 @@ liang 98 chrombook
 
  15-dw1783wm <https://ftc.cash/e2RXo>  15-ef2729wm <https://ftc.cash/B35n6>  oculus qeust<https://ftc.cash/3rz4Z>
  cf2112wm <https://ftc.cash/kDFlH> A315-58-34DA<https://ftc.cash/qEp3k>
-F1500EA-WB51<https://ftc.cash/0sTSN>
- 
+F1500EA-WB51<https://ftc.cash/0sTSN>  Amazon <https://ftc.cash/yiPxU>
+
 82KN002GUS <https://ftc.cash/YY7P4>  16 roku <https://ftc.cash/kZleM>
 bb 81X800MCUS 6511950 <https://ftc.cash/SHqWP>  <https://www.bestbuy.com/site/lenovo-ideapad-3i-15-6-hd-touch-laptop-core-i3-1115g4-8gb-memory-256gb-ssd-platinum-grey/6511950.p?skuId=6511950/?ref=5747701&acampID=0&loc=1498557091&afsrc=1> <https://www.bestbuy.com/site/lenovo-ideapad-3i-15-6-hd-touch-laptop-core-i3-1115g4-8gb-memory-256gb-ssd-platinum-grey/6511950.p?skuId=6511950/?ref=5747701&acampID=0&loc=1498558298&afsrc=1>
 
