@@ -22,7 +22,8 @@ dyson V10 Allerge <https://ftc.cash/G1K9M>
 dyson ball muti<https://ftc.cash/oHlNz>
 liang 98 chrombook
 <https://ftc.cash/N9ANh>    ROKU <https://ftc.cash/OSdH2>
-
+ 14a-ca0130wm<https://ftc.cash/UNWJs>
+ 
  15-dw1783wm <https://ftc.cash/e2RXo>  15-ef2729wm <https://ftc.cash/B35n6>  oculus qeust<https://ftc.cash/3rz4Z>
  cf2112wm <https://ftc.cash/kDFlH> A315-58-34DA<https://ftc.cash/qEp3k>
 F1500EA-WB51<https://ftc.cash/0sTSN>  Amazon <https://ftc.cash/yiPxU>  AMZ189<https://ftc.cash/QB8vC>  amz179<https://ftc.cash/fmLCw>
