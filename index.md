@@ -11,7 +11,8 @@ A315-58-33XS <https://ftc.cash/440Aq>
 82V6001DUS <https://ftc.cash/CMyYk>
 82C1002AUS 89
 <https://ftc.cash/o2cGu>
-fd0083wm <https://ftc.cash/HVKZ3>
+fd0083wm <https://ftc.cash/yt5S83>
+15-DY5131WM<https://ftc.cash/UujhQ>
 fd0081wm <https://ftc.cash/J0EDs>
 C424MA-WH44F<https://ftc.cash/3tpmP>
 L510MA-WS21<https://ftc.cash/6w5AV>
