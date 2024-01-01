@@ -27,7 +27,7 @@ liang 98 chrombook
 <https://ftc.cash/N9ANh>    ROKU <https://ftc.cash/OSdH2> oculus <https://ftc.cash/IH0bQ>
  14a-ca0130wm<https://ftc.cash/UNWJs>
 82VG00BJUS 249 <https://ftc.cash/8nq8d> MSI GF63 15" 479 <https://ftc.cash/OpSWB>  15-dy2795wm329 <https://ftc.cash/SsyaI>
- XBOX X<https://ftc.cash/x9dMp>  17-cn3034wm <https://ftc.cash/OtLme>
+ XBOX X<https://ftc.cash/x9dMp>  17-cn3034wm <https://ftc.cash/OtLme>  ASUS Vivobook 15 429 <https://ftc.cash/1eAc1>
 
  
  15-dw1783wm <https://ftc.cash/e2RXo>  15-ef2729wm <https://ftc.cash/B35n6>  oculus qeust<https://ftc.cash/3rz4Z>
