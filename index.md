@@ -22,15 +22,9 @@ wmt dyson V8 <https://ftc.cash/tG5ZJ>
 dyson V10 Allerge <https://ftc.cash/G1K9M>
 15-dy2792wm <https://ftc.cash/HASBE>
 dyson ball muti<https://ftc.cash/oHlNz>
-liang 98 chrombook
-<https://ftc.cash/N9ANh>    ROKU <https://ftc.cash/OSdH2> oculus <https://ftc.cash/IH0bQ>
- 14a-ca0130wm<https://ftc.cash/UNWJs>
-82VG00BJUS 249 <https://ftc.cash/8nq8d> MSI GF63 15" 479 <https://ftc.cash/OpSWB>  15-dy2795wm329 <https://ftc.cash/SsyaI>
- XBOX X<https://ftc.cash/x9dMp>  17-cn3034wm <https://ftc.cash/OtLme>  ASUS Vivobook 15 429 <https://ftc.cash/1eAc1>
-CB315-4H-C7A1 <https://ftc.cash/TUtWA>  USB 3.2 Gen2 (MU-PC500R/AM) <https://ftc.cash/QpZyU>  ACER AMD Ryzen 7 5700U  <https://ftc.cash/lVwS2>
- 
- 15-dw1783wm <https://ftc.cash/e2RXo>  15-ef2729wm <https://ftc.cash/B35n6>  oculus qeust<https://ftc.cash/3rz4Z>
- cf2112wm <https://ftc.cash/kDFlH> A315-58-34DA<https://ftc.cash/qEp3k>
+
+ 15-fd0079wm 199 <https://ftc.cash/aFHK4>
+ cf2112wm 179 <https://ftc.cash/wGV9M>  ideaPad cloud gray<https://ftc.cash/SH9zt> Acer I3-N305 <https://ftc.cash/dInYa> F1605ZA-WS74 <https://ftc.cash/zJBnS>
 F1500EA-WB51<https://ftc.cash/0sTSN>  Amazon <https://ftc.cash/yiPxU>  AMZ189<https://ftc.cash/QB8vC>  amz179<https://ftc.cash/fmLCw>
 
 82KN002GUS <https://ftc.cash/YY7P4>  16 roku <https://ftc.cash/kZleM>
