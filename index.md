@@ -12,16 +12,10 @@ A315-58-33XS <https://ftc.cash/440Aq>
  64GB eMMC Pink <https://ftc.cash/mBqTs>
 14-cf2723wm<https://ftc.cash/g8Cam>
 fd0083wm <https://ftc.cash/yt5S8>
-15-DY5131WM<https://ftc.cash/UujhQ>
-fd0081wm <https://ftc.cash/J0EDs>
-C424MA-WH44F<https://ftc.cash/3tpmP>
-L510MA-WS21<https://ftc.cash/6w5AV>
-dysonV7<https://ftc.cash/wMzdY>
-wmt dyson V8 <https://ftc.cash/tG5ZJ>
-14-dq2078wm <https://ftc.cash/uYyV3>
-dyson V10 Allerge <https://ftc.cash/G1K9M>
-15-dy2792wm <https://ftc.cash/HASBE>
-dyson ball muti<https://ftc.cash/oHlNz>
+129 Lenovo IdeaPad 1i 15.6" <https://ftc.cash/npcQW>
+199 HP15-fd0081wm <https://ftc.cash/J0EDs>
+199  15-fd0083wm <https://ftc.cash/JqqfE>
+
 
  15-fd0079wm 199 <https://ftc.cash/aFHK4>
  cf2112wm 179 <https://ftc.cash/wGV9M>  ideaPad cloud gray<https://ftc.cash/SH9zt> Acer I3-N305 <https://ftc.cash/dInYa> F1605ZA-WS74 <https://ftc.cash/zJBnS>
