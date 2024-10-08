@@ -11,7 +11,6 @@ A315-58-33XS <https://ftc.cash/440Aq>
 82V6001DUS <https://ftc.cash/CMyYk>
  64GB eMMC Pink <https://ftc.cash/mBqTs>
 14-cf2723wm<https://ftc.cash/g8Cam>
-fd0083wm <https://ftc.cash/yt5S8>
 129 Lenovo IdeaPad 1i 15.6" <https://ftc.cash/npcQW>
 199 HP15-fd0081wm <https://ftc.cash/J0EDs>
 199  15-fd0083wm <https://ftc.cash/JqqfE>
