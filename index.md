@@ -16,6 +16,8 @@ A315-58-33XS <https://ftc.cash/440Aq>
 199  15-fd0083wm <https://ftc.cash/JqqfE>
 129 HP CB4/128<https://ftc.cash/hOilQ>
 18 ROKU <https://ftc.cash/CPwKx>; 34 ROKU <https://ftc.cash/YQK9f>; / 229 HP 8G/256 <https://ftc.cash/jRYyW>; Lenovo 8g/256 <https://ftc.cash/FScYD>; Lenovo 16/512 <https://ftc.cash/1Tqnl>
+HP 129 Streambook <https://ftc.cash/mBqTs>; 129 streambook blue <https://ftc.cash/SrrJh>
+
 
  15-fd0079wm 199 <https://ftc.cash/aFHK4>
  cf2112wm 179 <https://ftc.cash/wGV9M>  ideaPad cloud gray<https://ftc.cash/SH9zt> Acer I3-N305 <https://ftc.cash/dInYa> F1605ZA-WS74 <https://ftc.cash/zJBnS>
