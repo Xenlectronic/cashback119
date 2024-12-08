@@ -17,6 +17,7 @@ A315-58-33XS <https://ftc.cash/440Aq>
 129 HP CB4/128<https://ftc.cash/hOilQ>
 18 ROKU <https://ftc.cash/CPwKx>; 34 ROKU <https://ftc.cash/YQK9f>; / 229 HP 8G/256 <https://ftc.cash/jRYyW>; Lenovo 8g/256 <https://ftc.cash/FScYD>; Lenovo 16/512 <https://ftc.cash/1Tqnl>
 HP 129 Streambook <https://ftc.cash/mBqTs>; 129 streambook blue <https://ftc.cash/SrrJh>  nintendo switch K8 <https://ftc.cash/esF8Z>  HP 14 4/64 <https://ftc.cash/9AES3>
+HP I5-1235U <https://ftc.cash/fwUvk>  Acer Aspire 3 15.6 inch Windows Laptop AMD Ryzen 7-5700U <https://ftc.cash/Bx8V1>
 
 
  15-fd0079wm 199 <https://ftc.cash/aFHK4>
